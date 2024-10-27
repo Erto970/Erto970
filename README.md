@@ -1,0 +1,3 @@
+- 👀 I’m interested in becoming a game developer
+- 🌱 I’m currently learning C++
+- 📫 How to reach me; ertugrulkaraguzel8@gmail.com
